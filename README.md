@@ -16,4 +16,5 @@
 
 * E-mail: [damir.akhmetzyanov@bk.ru](mailto:damir.akhmetzyanov@bk.ru)
 * Telegram: [@damir_akhmetzianov](https://t.me/damir_akhmetzianov)
-* Давно ничего не постил: [@forex_volume_news](https://t.me/forex_volume_news)
+* Давно ничего не постил: [@Telegram](https://t.me/forex_volume_news)
+* Давно ничего не выкладывал: [@Youtube](https://www.youtube.com/channel/UC64yWnig3p9YNilWIsrNN8w)
